@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Yean-ZX0
+- 👀 I’m interested in Desing new ideas with devoleping
+- 💞️ I’m looking to collaborate on new projects with Machine learning, Blockchain or IA
+- 📫 How to reach me ... yeanabadia29@gmail.com or twitter/@yeanlond
